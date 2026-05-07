@@ -1,4 +1,4 @@
-
+　  　　 　　    　　 　　 　  　　 　　    　　 　　 𝙸'𝚖 𝚊 𝚜𝚑𝚘𝚞𝚕𝚍𝚎𝚛 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚛𝚢 𝚘𝚗
 <p align="center">
   
 
@@ -6,7 +6,7 @@
 <img width="559" height="447" alt="1000038245-removebg-preview" src="https://github.com/user-attachments/assets/f20aa8f2-c064-4e0d-9ee4-fde5f0db3878" />
 </p>
                
-
+　  　　 　　    　　 　　 　  　　　 　 　 𝚈𝚘𝚞𝚛 𝚋𝚎𝚜𝚝 𝚏𝚛𝚒𝚎𝚗𝚍, 𝙸'𝚖 𝚝𝚑𝚎 𝚘𝚗𝚎 𝚢𝚘𝚞 𝚖𝚞𝚜𝚝 𝚛𝚎𝚕𝚢 𝚘𝚗 !!
 
 　　　 　　 　　　　  　 　　　 　　    　[ata](https://riddledbatz.atabook.org/)　 　　  　[main](https://github.com/riddledbatz)　 　　  　[prns](https://pronouns.cc/@riddledbatz_)
 
